@@ -2,7 +2,7 @@
 - i share this account with 2 of my best buds, my qpp & my cousin!! it's probably only gonna be me on here lately tho
 - c+h always unless my display name says dni. even when i dont have c+h on my name!!
 - dont cover me pls its annoying /nm
-- im 14, dont be a nasty dog (11 and under dni, you will be blocked & hidden instantly)
+- im 14, dont be a nasty dog (11 and under dni bc you will be blocked & hidden instantly. 12 yr olds on thin ice, i'll block you if i think i should)
 - tbh its kinda stupid having a huge dni on a pixel pony game so just basic criteria ig.. oh and ppl who thirst over biografts you guys are weird
 - remaking strawpage soon
 <!---
