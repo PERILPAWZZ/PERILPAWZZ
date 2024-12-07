@@ -1,4 +1,5 @@
 - hiya, im subspace!! dont panic or anything but i got caught running away and i won't be home for a week or longer (and when i do get home, i'll likely be grounded or worse). i was only allowed to take my school chromebook with me and if im on PT at all, its bc im in a safe spot and im using PT to somehow talk to my long distance friend
+- doubles r fine but be careful!
 - i share this account with 2 of my best buds, my qpp & my cousin!! it's probably only gonna be me on here lately tho
 - c+h always unless my display name says dni. even when i dont have c+h on my name!!
 - dont cover me pls its annoying /nm
