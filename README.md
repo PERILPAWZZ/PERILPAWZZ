@@ -1,8 +1,9 @@
-- hiya, im subspace!! dont panic or anything but im actively running away and if im on PT at all, its either bc im luckily in a safe spot or im using PT to somehow talk to my long distance friend
-- basically if im on PT at all it'll probably be for a very short time
-- ik what im doing. dont panic. ill be safe soon <3 (..please)
-- i might make another repository talking about my journies through hell n back. i would do that kinda thing on my DA but im gonna have my friend tell some ppl where im going and then deactivate bc people irl have my deviantart
-- leave me something nice or mean as hell. or dont do either of those. 24hoursinblackrock.straw.page
+- hiya, im subspace!! dont panic or anything but i got caught running away and i won't be home for a week or longer (and when i do get home, i'll likely be grounded or worse). i was only allowed to take my school chromebook with me and if im on PT at all, its bc im in a safe spot and im using PT to somehow talk to my long distance friend
+- c+h always unless my display name says dni. even when i dont have c+h on my name!!
+- dont cover me pls its annoying /nm
+- im 14, dont be a nasty dog (11 and under dni, you will be blocked & hidden instantly)
+- tbh its kinda stupid having a huge dni on a pixel pony game so just basic criteria ig.. oh and ppl who thirst over biografts you guys are weird
+- go decorate my tree!! ^^ /nf
 <!---
 PERILPAWZZ/PERILPAWZZ is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
