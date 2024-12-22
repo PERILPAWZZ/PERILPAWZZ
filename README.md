@@ -1,7 +1,7 @@
-- hiya, im subspace!! dont panic or anything but i got caught running away and i won't be home for a week or longer (and when i do get home, i'll likely be grounded or worse). i was only allowed to take my school chromebook with me and if im on PT at all, its bc im in a safe spot and im using PT to somehow talk to my long distance friend.
-- i will be very inactive on 12/12/24 and beyond. its related to the running away thing. hehe oops sorry i wanted to escape one of the scariest places ive ever been in life XP
+- hiya, im subspace!!
+- VIET: Đôi khi tôi sử dụng máy chủ tiếng Việt để tránh xa mọi người (ví dụ: nếu một sự kiện nghỉ lễ đang diễn ra) nhưng tôi chỉ có thể nói tiếng Việt thông qua một người phiên dịch!! Lấy làm tiếc!! :(
 - doubles r fine but be careful!
-- i share this account with 2 of my best buds, my qpp & my cousin!! it's probably only gonna be me on here lately tho
+- i share this account with 2 of my best buds, my qpp & my cousin!! someone asked if we're a system, we are most definitely not a system (nothing's wrong with systems lmao im just saying)
 - c+h always unless my display name says dni. even when i dont have c+h on my name!!
 - dont cover me pls its annoying /nm
 - im 14, dont be a nasty dog (11 and under dni bc you will be blocked & hidden instantly. 12 yr olds on thin ice, i'll block you if you're annoying enough lolol)
