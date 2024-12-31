@@ -7,7 +7,9 @@
 - im 14, dont be a nasty dog (11 and under dni bc you will be blocked & hidden instantly. 12 yr olds on thin ice, i'll block you if you're annoying enough lolol)
 - tbh its kinda stupid having a huge dni on a pixel pony game so just basic criteria ig.. oh and ppl who thirst over biografts you guys are weird
 - remaking strawpage soon
-- i ltrly cannot believe i have to say this but my mom's dog doesnt gaf what im doing and sits on my keyboard ALL THE GD TIME /srs so if i randomly boop, kiss, or walk into you it's her fault. im writing this minutes after kissing the air 3 times due to the dog and i feel like it needs a warning now
+- iwc = interact with caution. im either sleepy, afk, or i have a bad connection. expect disconnecting and slow responses (or no response at all)
+- iwec = interact with extreme caution. im really pissed and/or exiting an episode of some kind (panic attack, derealization, etc.) . usually if i have this tag AND c+h at the same time it means i dont want to interact by talking
+- iwvec = im either actively having a manic episode (in that case, i cannot tell reality from delusion and i will say crazy shit) or my grandma is peeping at my device. just be careful and dont say anything that a queerphobic trump-supporring antifurry evangelist granny wouldn't approve of. if i walk away mid-convo, do not follow me because it could be for a number of reasons. also same with iwec: if i have this tag and c+h in my name with it, it means id rather you not talk to me unless absolutely necessary. you dont have to ask to sit with me or anything
 - dniuid = dont interact unless i do first
 - dniubf = dont interact unless best friend. a lot of ppl use this meaning ¨do not interact unless boyfriend¨ but thats not the case with me!! i sadly dont have any partners anymore but um thats a different story for a different time
 - people who dont listen to my display name tag things shall be taken to the landfill by sunrise tomorrow
