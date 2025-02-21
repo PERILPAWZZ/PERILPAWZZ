@@ -11,7 +11,7 @@
 - iwec = interact with extreme caution. im really pissed and/or exiting an episode of some kind (panic attack, derealization, etc.) . usually if i have this tag AND c+h at the same time it means i dont want to interact by talking
 - iwvec = im either actively having a manic episode (in that case, i cannot tell reality from delusion and i will say crazy shit) or my grandma is peeping at my device. just be careful and dont say anything that a queerphobic trump-supporring antifurry evangelist granny wouldn't approve of. if i walk away mid-convo, do not follow me because it could be for a number of reasons. also same with iwec: if i have this tag and c+h in my name with it, it means id rather you not talk to me unless absolutely necessary. you dont have to ask to sit with me or anything
 - dniuid = dont interact unless i do first
-- dniubf = dont interact unless best friend. a lot of ppl use this meaning ¨do not interact unless boyfriend¨ but thats not the case with me!! i sadly dont have any partners anymore but um thats a different story for a different time
+- dniubf = dont interact unless best friend. a lot of ppl use this meaning ¨do not interact unless boyfriend¨ but thats not the case with me!! i have a gf but i cant convince her to get pt 💔
 - people who dont listen to my display name tag things shall be taken to the landfill by sunrise tomorrow
 <!---
 PERILPAWZZ/PERILPAWZZ is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
